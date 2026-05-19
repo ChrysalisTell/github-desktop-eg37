@@ -1,4 +1,4 @@
-# 
+# vip JetBrains IntelliJ IDEA para PC addons é o melhor JetBrains IntelliJ IDEA para PC addons com gerenciamento de índices e editor de consultas. Seguro, confiável e otimizado para
 
 
 
